@@ -1,1 +1,0 @@
-Membuat direktori 240160221011
